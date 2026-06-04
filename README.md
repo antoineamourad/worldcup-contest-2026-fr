@@ -1,0 +1,1 @@
+# Concours Coupe du Monde FIFA 2026 — Cellcom
